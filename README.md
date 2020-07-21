@@ -7,7 +7,9 @@ src="https://www.dafont.com/img/illustration/b/l/black_lives_matter.png">
 
 <h2><b>Background</b><br></h2>
 
-On 6/5/20, a message of solidarity for #BlackLivesMatter was painted in front of the White House. Since then, many other cities across the U.S and even some abroad have followed suit. Unfortunately, as we saw in Martinez, CA over the weekend, people will go through great lengths to spew their hatred by vandalizing these city approved murals.
+On 6/5/20, a message of solidarity for #BlackLivesMatter was painted in front of the White House. Since then, many other cities across the U.S and even some abroad have followed suit.
+
+Unfortunately, as we saw in Martinez, CA over the weekend, people will go through great lengths to spew their hatred by vandalizing these city approved murals.
 
 <h2><b>IDEA</b><br></h2>
 
